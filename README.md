@@ -1,13 +1,13 @@
 # MyAllWorks
 
 ## 2023
-My Shifting to linux experience[Watch](https://youtu.be/WbTQ7R2_XWA)
-Single Perspective Instinct Short [Watch](https://youtube.com/shorts/n_ddkLncbyo?feature=share)
-the whislter and shoe | book thief [watch](https://youtu.be/kc2UMoApBXw)
-Urency Instinct [watch](https://youtu.be/sxvEiPR200w)
+My Shifting to linux experience[Watch](https://youtu.be/WbTQ7R2_XWA).
+Single Perspective Instinct Short [Watch](https://youtube.com/shorts/n_ddkLncbyo?feature=share).
+the whislter and shoe | book thief [watch](https://youtu.be/kc2UMoApBXw).
+Urency Instinct [watch](https://youtu.be/sxvEiPR200w).
 
-Multiplayer flappyBird project update [read](https://mohitshrmma.hashnode.dev/project-update-multiplayer-flappy-bird)
-what's the hurry [read](https://mohitshrmma.hashnode.dev/whats-the-hurry)
+Multiplayer flappyBird project update [read](https://mohitshrmma.hashnode.dev/project-update-multiplayer-flappy-bird).
+what's the hurry [read](https://mohitshrmma.hashnode.dev/whats-the-hurry).
 
 ## 2022
 why python shouldn't be first language [read](https://medium.com/@mformohit/why-python-should-not-be-you-first-language-761ca12b48ab)
