@@ -1,9 +1,9 @@
 # MyAllWorks
 
 ## 2023
-NaagMandaal(College Play) [watch](https://youtu.be/3FzScZZqZCI?si=Nx9gGoZH_JHd8RVh)
-Where is Winds Of Winter. Last book of Ice and Fire Series-Hindi[watch](https://youtu.be/v5M7IG7NhRI?si=pMJ-6orcUIS4LaBc)
-Pride and prejudice:ek mast Katha- starring elizabeth bennet [watch](https://youtu.be/YEYWWKvAmTc?si=dplHA4Frsz-rK2Jg)
+NaagMandaal(College Play) [watch](https://youtu.be/3FzScZZqZCI?si=Nx9gGoZH_JHd8RVh)    
+Where is Winds Of Winter. Last book of Ice and Fire Series-Hindi[watch](https://youtu.be/v5M7IG7NhRI?si=pMJ-6orcUIS4LaBc)   
+Pride and prejudice:ek mast Katha- starring elizabeth bennet [watch](https://youtu.be/YEYWWKvAmTc?si=dplHA4Frsz-rK2Jg)   
 My Shifting to linux experience[Watch](https://youtu.be/WbTQ7R2_XWA).  
 Single Perspective Instinct Short [Watch](https://youtube.com/shorts/n_ddkLncbyo?feature=share).  
 the whislter and shoe | book thief [watch](https://youtu.be/kc2UMoApBXw).  
